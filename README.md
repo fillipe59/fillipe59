@@ -1,4 +1,4 @@
-## Bem vindo ao perfil de Fillipe Lima!
+## Welcome to Fillipe Lima's profile!
 
 <div align="center">
   <a href="https://github.com/fillipe59">
